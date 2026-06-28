@@ -1,4 +1,4 @@
-# 
+# Personalizado dexscreener sniper bot complementos para Mac OS | Novo dexscreener sniper bot complementos para PC Windows. Com estratégias de back-running e detecção de sandwich — otimizado para máximo desempeño en cada plataforma.
 
 
 
